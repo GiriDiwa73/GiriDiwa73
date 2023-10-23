@@ -1,8 +1,10 @@
 [![JKYCG5P.md.png](https://iili.io/JKYCG5P.md.png)](https://freeimage.host/i/JKYCG5P)
 
 # Hello 👋, Aku
-# GIRI DIWA ADAM
-#### Junior Web Developer
+
+GIRI DIWA ADAM
+Junior Web Developer
+
 >"Belajar, Konsisten, Berusaha, Jangan Malu Bertanya, 
 Kreativ Berfikir, Suka Tantangan dan Jangan Sungkan Membantu sesama."
 
