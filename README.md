@@ -1,4 +1,4 @@
-![logo](https://freeimage.host/i/JnYojOQ.png)
+![logo](https://iili.io/JnYA1sV.png)
 
 # Hello 👋, Aku
 
