@@ -1,4 +1,4 @@
-![logo](https://wallpapercave.com/dwp1x/wp8396932.jpg)
+![logo](https://freeimage.host/i/JnYojOQ)
 
 # Hello 👋, Aku
 
